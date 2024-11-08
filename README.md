@@ -1,1 +1,1 @@
-If you did not come from our google doc, you are not welcome here! Please go through the proccess of getting to our google doc first, it could help you in many ways!
+Closed due to random finding and downloading! If you have access get the games here: https://drive.google.com/drive/folders/12UBi0uqUZga4QhYT_h0wKvAXbvkstErE?usp=sharing
